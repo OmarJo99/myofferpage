@@ -1,1 +1,1 @@
-<a href="https://ibb.co/FW9jZ0W"><img src="https://i.ibb.co/dcSzCLc/Screenshot-2021-09-21-112740.jpg" alt="Screenshot-2021-09-21-112740" border="0"></a><br /><a target='_blank' href='https://the-crosswordsolver.com/italian-sculptor-nicola-6-letters'>sculptor nicola crossword</a><br />
+<img src="https://i.ibb.co/dcSzCLc/Screenshot-2021-09-21-112740.jpg" alt="Screenshot-2021-09-21-112740" border="0"></a><br /><a target='_blank' href='https://the-crosswordsolver.com/italian-sculptor-nicola-6-letters'><br />
